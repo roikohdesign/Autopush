@@ -8,3 +8,5 @@ Auto push bottle
 5. Adapter DC 5v.
 
 *** รายการ 4-5 ประยุกต์ใช้ power bank ได้นะครับ ***
+
+https://youtu.be/CVZQbjPq9vs
